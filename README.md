@@ -19,6 +19,6 @@ on a few clicks
 ### - bash x-basic.sh
 
 ## - ENJOY THE TOOL 
-### - if You like it then star it✌️
+### - if You like☠️ it then plz  🌟 it✌️
 
-##~Teekay-X
+## ~ Teekay-X
